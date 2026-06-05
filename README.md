@@ -1,6 +1,6 @@
 [Otherhearter](https://otherkin.fandom.com/wiki/Otherhearted) ໒꒰ྀི´ ˘ ` ꒱ྀིა
 
-Someone with a bond of a character so strong, it impact their core or self. 
+Someone with a bond of a character so strong, it impacts their core or self. 
 This is used for *identifying* with the Being, not identifying *As one*.
 
 mine -> Shuichi Saihara, Hitori Gotoh
