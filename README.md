@@ -22,7 +22,7 @@ mine -> Nagito Komaeda, Ame-chan
 [Otherkin](https://otherkin.fandom.com/wiki/Otherkin
 ) ૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა
 
-also called "*otherkind*" are those who identify as some way of being *nonhuman* or not fully human. This identity if often considered involuntary.
+also called "*otherkind*" are those who identify as some way of being *nonhuman* or not fully human. This identity is often considered involuntary.
 
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
